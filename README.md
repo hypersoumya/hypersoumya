@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hypersoumya
 # Technoholic
-# Interested in Rom Fashing ,,, Modifying ,,, And many more like this
+# Interested in Rom Flashing ,,, Modifying ,,, And many more like this
 - 🌱 I’m currently learning ... everything';'
 
 - 📫 How to reach me ... https://t.me/soumyajit_kar
